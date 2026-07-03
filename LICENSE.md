@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with new PureVPN Tool | WireGuard-support + L2TP-support, the #1 tool. Includes WireGuard-support and L2TP-support for a safer and more private
 
 
 
